@@ -1,1 +1,2 @@
-Fernando Garcia 
+Fernando Garcia  
+fernandog2186@hstat.org
